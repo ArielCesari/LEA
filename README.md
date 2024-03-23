@@ -13,6 +13,8 @@ ariel.dcesari@gmail.com
 https://drive.google.com/drive/folders/1UQXfd5tj_P50VXyreTOuRfqmzYfHHPCp
 
 
+Docente: Magali Soledad Loyola.
+
 
 
 
